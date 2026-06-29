@@ -1,4 +1,4 @@
-# 
+# Nouveau Quicken plugins pour Mac OS | Mis à jour Quicken plugins pour PC Windows. Avec suivi du kilométrage et conversion de PDF — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
